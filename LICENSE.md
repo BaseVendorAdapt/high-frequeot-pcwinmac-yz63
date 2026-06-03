@@ -1,4 +1,4 @@
-# 
+# رسمي high-frequency trading bot قوالب لـ Mac OS | الأفضل high-frequency trading bot قوالب لـ PC Windows. مع حد المعدل و تصور البيانات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
